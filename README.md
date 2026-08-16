@@ -24,9 +24,9 @@ $\color{#6930BD}{\textsf{his timey ♡ 09.04.25}}$
 
 <div align="center">
   
-[rentry](https://rentry.co/humannature) .
-[prns.cc](https://pronouns.cc/@undyingregret) .
-[atabook](https://undyingregret.atabook.org/) .
+[rentry](https://rentry.co/humannature) $\color{#6930BD}{\textsf{𓏴}}$
+[prns.cc](https://pronouns.cc/@undyingregret) $\color{#6930BD}{\textsf{𓏴}}$
+[atabook](https://undyingregret.atabook.org/) $\color{#6930BD}{\textsf{𓏴}}$
 [my ♡](https://github.com/omegamaie)
 </div>
 
