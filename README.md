@@ -1,26 +1,26 @@
 <div align="center">
 
-$\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
-$\color{#B6BEC9}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers) [@pt-fashion](https://github.com/pt-fashion) [@cosplaytown](https://github.com/cosplaytown)
+$\color{#6930BD}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
+$\color{#6930BD}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers) [@pt-fashion](https://github.com/pt-fashion) [@cosplaytown](https://github.com/cosplaytown)
 
-$\color{#B6BEC9}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional)
+$\color{#6930BD}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@shiptown](https://github.com/shiptown)
 
-$\color{#B6BEC9}{\textsf{not an azure yume i just like him a lot}}$
+$\color{#6930BD}{\textsf{not an azure yume i just like him a lot}}$
 
-$\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
+$\color{#6930BD}{\textsf{his timey ♡ 09.04.25}}$
 
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=B6BEC9&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=6930BD&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
-<p align="center">$\color{#B6BEC9}{\textsf{Never again shall i wonder}}$
+<p align="center">$\color{#6930BD}{\textsf{Never again shall i wonder}}$
 </p>
-<p align="center">$\color{#B6BEC9}{\textsf{Never again shall i hurt}}$
+<p align="center">$\color{#6930BD}{\textsf{Never again shall i hurt}}$
 </p>
-<p align="center">$\color{#B6BEC9}{\textsf{Never again shall i love}}$
+<p align="center">$\color{#6930BD}{\textsf{Never again shall i love}}$
 </p>
-<p align="center">$\color{#B6BEC9}{\textsf{For you, Dear Spawn.}}$
+<p align="center">$\color{#6930BD}{\textsf{For you, Dear Spawn.}}$
 </p>
 
-<p align="center"><img width="220" alt="image" src="https://github.com/user-attachments/assets/356a115b-c313-4acb-a8ac-10a66c9963f8" />
+<p align="center"><img width="537" alt="image" src="https://github.com/user-attachments/assets/9b2af3ab-3274-4a40-bab3-5b5037a0a3f8" />
 
 <div align="center">
   
@@ -40,5 +40,5 @@ $\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
 <p align="center"><img width="100" alt="image" src="https://github.com/user-attachments/assets/6eeb5f0c-0e53-4414-8b96-f392c3b90d5f" />
 <p align="center">ᵃˡˡ ˢᵗᵃᵐᵖˢ ᵇʸ ᵐᵉ
 
-<p align="center">$\color{#B6BEC9}{\textsf{@starsplatfest on twt's biggest fan of over a year btw :/ i love it's art Ok}}$
+<p align="center">$\color{#6930BD}{\textsf{@starsplatfest on twt's biggest fan of over a year btw :/ i love it's art Ok}}$
 </p>
