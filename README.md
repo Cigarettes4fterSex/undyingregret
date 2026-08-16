@@ -38,7 +38,7 @@ $\color{#6930BD}{\textsf{his timey ♡ 09.04.25}}$
 <img width="101" alt="image" src="https://github.com/user-attachments/assets/5db7a1f1-13c4-4458-a6a5-5baf338f759f" />
   
 <p align="center"><img width="100" alt="image" src="https://github.com/user-attachments/assets/6eeb5f0c-0e53-4414-8b96-f392c3b90d5f" />
-<p align="center">ᵃˡˡ ˢᵗᵃᵐᵖˢ ᵇʸ ᵐᵉ
+<p align="center">$\color{#6930BD}{\textsf{ᵃˡˡ ˢᵗᵃᵐᵖˢ ᵇʸ ᵐᵉ}}$
 
 <p align="center">$\color{#6930BD}{\textsf{@starsplatfest on twt's biggest fan of over a year btw :/ i love it's art Ok}}$
 </p>
