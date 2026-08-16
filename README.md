@@ -3,7 +3,7 @@
 $\color{#6930BD}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
 $\color{#6930BD}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers) [@pt-fashion](https://github.com/pt-fashion) [@cosplaytown](https://github.com/cosplaytown)
 
-$\color{#6930BD}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@shiptown](https://github.com/shiptown)
+$\color{#6930BD}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ship-town](https://github.com/ship-town)
 
 $\color{#6930BD}{\textsf{not an azure yume i just like him a lot}}$
 
