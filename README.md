@@ -5,9 +5,6 @@ $\color{#6930BD}{\textsf{official two time of ponytown for well over a year !!}}
 
 $\color{#6930BD}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ship-town](https://github.com/ship-town)
 
-$\color{#6930BD}{\textsf{not an azure yume i just like him a lot}}$
-
-$\color{#6930BD}{\textsf{his timey ♡ 09.04.25}}$
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=6930BD&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
