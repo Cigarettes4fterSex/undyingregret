@@ -1,11 +1,3 @@
-<div align="center">
-
-$\color{#6930BD}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
-$\color{#6930BD}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers) [@pt-fashion](https://github.com/pt-fashion) [@cosplaytown](https://github.com/cosplaytown)
-
-$\color{#6930BD}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ship-town](https://github.com/ship-town)
-
-
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=6930BD&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
 <p align="center">$\color{#6930BD}{\textsf{Never again shall i wonder}}$
